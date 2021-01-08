@@ -1,8 +1,6 @@
-## Welcome to Your Eventual Demise!
+## Welcome to Your Final Destination!
 
-You can use the [kys button](http://sicanzi.com/) to get harrassed with ease!
-
-Whenever you feel too happy and forget about the horrible shit in the world, just give that site a click and get reminded of your poor life and poor geographical luck.
+You can use the [zaaxd](http://sicanzi.com/) button to get reminded of how retarded everyone is, including you!
 ### Your mama
 
 Your mama is a fat
